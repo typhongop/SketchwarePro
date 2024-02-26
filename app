@@ -1,0 +1,1 @@
+[drool] [evil] [angry] [angel] [cool] [blink] [cute]  [nap] [wow] [hehe] 
